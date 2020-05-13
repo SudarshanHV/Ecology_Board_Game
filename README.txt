@@ -1,6 +1,3 @@
-﻿Group 11- A Novel Approach to Environmental Literacy
-
-
 List of files uploaded:
 
 1) Presentation - This will be used for explaining our project during the allotted slot
